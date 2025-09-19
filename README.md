@@ -1,0 +1,1 @@
+Zedar'a ders vermeye geldiğinde, önce buraya gel, onu kur ve sonra sıfırdan inşa et. Unutma, o zavallı, minik ve aptal olan o, onun hayatta kalmasına izin veren ve tüm işi yapan devasa beyinli olan da biziz
